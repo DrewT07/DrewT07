@@ -1,0 +1,4 @@
+- Hi, I am Drew Thompson
+- I’m currently learning Business Analyst at TripleTen Bootcamp.
+- I enojoy Hiking, going to the Gym, the out doors, and spending time with friends and family.
+- My Goal for 2024 is to get a job as a Business Analysts.
